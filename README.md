@@ -1,1 +1,1 @@
-helo
+IDCO - Islamia Degree College Okara
